@@ -43,4 +43,4 @@ In summary, selecting the right mechanical pencil involves considering various f
 Based on all the factors above, we would suggest trying out the Kaweco brand for mechanical pencils if budget is not a concern. This can be an investment in your writing
 endeavours.
 
-https://amzn.to/3BxW7hz - Click on this link to purchase this mechanical pencil.
+[https://amzn.to/3BxW7hz](https://amzn.to/3BxW7hz) - Click on this link to purchase this mechanical pencil.
