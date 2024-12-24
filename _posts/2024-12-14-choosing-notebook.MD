@@ -73,3 +73,5 @@ In summary, choosing the right notebook for journaling involves considering pape
 If you have a higher budget for purchasing a journal, you may wish to consider Moleskine
 
 Click on this link to purchase a notebook from Moleskine - [https://amzn.to/3ByqTa7](https://amzn.to/3ByqTa7)
+
+This is an affiliate link. We get a commission when you purchase through this link.

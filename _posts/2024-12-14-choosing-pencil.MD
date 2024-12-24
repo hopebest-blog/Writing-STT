@@ -44,3 +44,5 @@ Based on all the factors above, we would suggest trying out the Kaweco brand for
 endeavours.
 
 [https://amzn.to/3BxW7hz](https://amzn.to/3BxW7hz) - Click on this link to purchase this mechanical pencil.
+
+This is an affiliate link. We get a commission when you purchase through this link.
